@@ -1,9 +1,9 @@
 - 👋 Hi, I’m Rafikanets
-- 👀 I’m interested in 
+- 👀 I’m interested in politic
 - 🌱 I’m currently learning eng spa
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me ...
-- 😄 Pronouns: |.
+- 😄 Pronouns: |))\\
 - ⚡ Fun fact: .
 
 <!---
