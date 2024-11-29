@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning eng spa)))0ridsgfjrigf
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me ...
-- 😄 Pronouns: |))\\
+- 😄 Pronouns: |)rgkkiwd
 - ⚡ Fun fact: .
 <!---
 Rafikanets/Rafikanets is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
