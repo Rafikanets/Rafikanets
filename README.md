@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Rafikanets ss
+- 👋 Hi, I’m Rafikanets orfejkegf
 - 👀 I’m interested in politic
 - 🌱 I’m currently learning eng spa)))0ridsgfjrigf
 - 💞️ I’m looking to collaborate on 
