@@ -2,7 +2,7 @@
 - 👀 I’m interested in politic
 - 🌱 I’m currently learning eng spa)))0aaawfcs
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me ...tsrdhtrhjtyartnb
+- 📫 How to reach me ...tsgfbfdeaf
 - 😄 Pronouns: |)rgkkiwd
 - ⚡ Fun fact: .
 <!---
