@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Rafikanets orfejkegf
 - 👀 I’m interested in politic
-- 🌱 I’m currently learning ennbhgfdrsetyfdc
+- 🌱 I’m currently learning hdjjtyhjdty
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me ...tnngratgb
 - 😄 Pronouns: |)rgkkiwd
