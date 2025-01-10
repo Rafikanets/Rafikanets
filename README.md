@@ -2,7 +2,7 @@
 - 👀 I’m interested in hd
 - 🌱 I’m currently learning fgsfregtrh
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me ...tnngratgb
+- 📫 How to reach me ...uyhdfighdshgijtrg
 - 😄 Pronouns: |)rgkkiwd
 - ⚡ Fun fact: .
 <!---
