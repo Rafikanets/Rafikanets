@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Rafikanets orfejkegf
 - 👀 I’m interested in hd
-- 🌱 I’m currently learning fgsbhgfghg
+- 🌱 I’m currently learning hmdythjngty
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me ...hngdsyhryjugjk
 - 😄 Pronouns: |)rgkkiwd
